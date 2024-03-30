@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @BornKid
+- 👀 I’m interested in Scripting
+- 🌱 I’m currently learning LUA FULLY
+- 💞️ I’m looking to collaborate on a roblox game 
+- 📫 How to reach me via discord clownkilier
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i am not gay
